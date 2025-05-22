@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some future projects IDK about
 - 📫 You can reach me through the email: vaibhav.official@hotmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I like to eat sweet things
+- ⚡ Fun fact: I like to eat sweets
 
 <!---
 Vaibhav-1023/Vaibhav-1023 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
